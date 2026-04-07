@@ -13,6 +13,3 @@ milf
 
 [tornadoqt](https://steamcommunity.com/id/tornadoqt) 16. Apr. 2025 um 9:34 
 ![:tornado:](https://community.fastly.steamstatic.com/economy/emoticon/tornado)![:DrumsRockLike:](https://community.fastly.steamstatic.com/economy/emoticon/DrumsRockLike)![:darkheart:](https://community.fastly.steamstatic.com/economy/emoticon/darkheart)
-
-$ git tag
-Cleopatra (Egyptian)
