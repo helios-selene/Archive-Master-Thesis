@@ -1,4 +1,4 @@
-This repository represents the archive of user submissions from _Steam_ and _Civ Fanatics_ analyzed in my master's thesis, written at the University of Regensburg (Germany). 
+This repository represents the archive of user content from _Steam_ and _Civ Fanatics_ analyzed in my master's thesis, written at the University of Regensburg (Germany). 
 
 The citation for the user submissions in my thesis follows this example: [username] via [platform], [media] von [username] ([year of publication]).
 
