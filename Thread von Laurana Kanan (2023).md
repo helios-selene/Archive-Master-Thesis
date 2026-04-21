@@ -1,4 +1,4 @@
-Thread begonnen von Laurana Kanan am 12. Feb. 2023, URL: https://forums.civfanatics.com/threads/persona-spotlight-cleopatra-ptolemaic.682097/. 
+Thread begonnen von User Laurana Kanan am 12. Feb. 2023, URL: https://forums.civfanatics.com/threads/persona-spotlight-cleopatra-ptolemaic.682097/. 
 
 ## [blackbutterfly](https://forums.civfanatics.com/members/blackbutterfly.279622/) 13. Feb. 2023 (AW Nr. 37)
 
