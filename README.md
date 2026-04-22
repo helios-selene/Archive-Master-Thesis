@@ -1,7 +1,7 @@
 ## About this repository 
 This repository represents the archive of user content from _Steam_ and _Civ Fanatics_ analyzed in my master's thesis, written at the University of Regensburg (Germany). 
 
-The user contet cited in my thesis follows this example: [username] via [platform], [media] von [username] ([year of publication]).
+The user content cited in my thesis follows this example: [username] via [platform], [media] von [username] ([year of publication]).
 
 ## About my master's thesis
 
