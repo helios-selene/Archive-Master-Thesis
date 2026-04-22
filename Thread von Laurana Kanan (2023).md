@@ -9,6 +9,7 @@ It's saying female leaders in antiquity were only great because they were able t
 ## [Republic of San Montuoso](https://forums.civfanatics.com/members/republic-of-san-montuoso.306942/) 13. Feb. 2023 (AW Nr. 38) 
 
 > [blackbutterfly said:](https://forums.civfanatics.com/goto/post?id=16412335)
+> 
 > Cleo has had lipo and is more seductive...which IMO is a little misogynist? (The seductive part, not the lipo).
 > It's saying female leaders in antiquity were only great because they were able to lure powerful leaders of other nations.
 
@@ -19,6 +20,7 @@ But since Dido, Ba Trieu, Amanitore or Gorgo don't look particularly "seductive"
 ## [Eagle Pursuit](https://forums.civfanatics.com/members/eagle-pursuit.187644/) 13. Feb. 2023 (AW Nr. 39) 
 
 > [blackbutterfly said:](https://forums.civfanatics.com/goto/post?id=16412335)
+> 
 > Cleo has had lipo and is more seductive...which IMO is a little misogynist? (The seductive part, not the lipo).
 > It's saying female leaders in antiquity were only great because they were able to lure powerful leaders of other nations.
 
@@ -33,6 +35,7 @@ Yeah despite everything, Civ6 is probably the most nuanced portrayal in a videog
 ## [pokiehl](https://forums.civfanatics.com/members/pokiehl.300364/) 13. Feb. 2023 (AW Nr. 41)
 
 >[SecretWeapon said:](https://forums.civfanatics.com/goto/post?id=16412358)
+>
 >Yeah despite everything, Civ6 is probably the most nuanced portrayal in a videogame ever of Cleopatra, even if they couldn't drop the egyptian wig
 
 How is it a nuanced portrayal? I’m not really sure how a portrayal of any leader in this game be considered nuanced. This game has no narrative; it doesn’t attempt to tell any particular story.
